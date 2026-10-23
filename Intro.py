@@ -1,0 +1,1 @@
+If you want to ask or tell me anything, you can  type here or msg me on my number: 7019440664
